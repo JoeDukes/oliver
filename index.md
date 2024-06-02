@@ -21,6 +21,8 @@ Anything construction, firetruck, ambulance, school bus, car, truck, garbage tru
 
 ## Target Specific
 
+* Any Discovery Toy that is age appropriate
+
 * [Marble Discovery Toy](https://www.target.com/p/national-geographic-glow-in-the-dark-marble-run---50pc--no-aasa/-/A-80170802) - $24.99
 
 <img src="./images/marbles-toy.webp" alt="Target - Marbles Discovery Toy" width="200" />
@@ -28,8 +30,6 @@ Anything construction, firetruck, ambulance, school bus, car, truck, garbage tru
 * [Robot Discovery Toy](https://www.target.com/p/discovery--mindblown-solar-robot-creation-stem-science-kit-190pc--no-aasa/-/A-76422592) - $14.99
 
 <img src="./images/robot-toy.webp" alt="Target - Robot Discovery Toy" width="200" />
-
-* Any Discovery Toy that is age appropriate
 
 ## Backyard Fun
 
