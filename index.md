@@ -40,3 +40,4 @@ Oliver loves Pupstruction the most, but also loves Paw Patrol, Super Kitties, El
 * Sandbox with lid
 * Slide
 * Garden-hose-fun toys, like a kid's sprinkler
+* Baby pool
