@@ -4,6 +4,8 @@
 
 Anything construction, firetruck, ambulance, school bus, car, truck, garbage truck, plane, jet, helicopter, ...
 
+He doesn't have a tow truck and he would really like that.
+
 ## Favorite Characters
 
 Oliver loves Pupstruction the most, but also loves Paw Patrol, Super Kitties, Elmo / Sesame Street
