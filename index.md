@@ -6,7 +6,7 @@ Anything construction, firetruck, ambulance, school bus, car, truck, garbage tru
 
 He doesn't have a ***tow truck*** and he would really like that.
 
-His current Tonka-like toy collection is a dump truck, back hoe / front loader, and garbage truck. He would love an ***excavator***, a ***bulldozer*** and/or a ***grader***.
+His current Tonka-like toy collection is a dump truck, back hoe / front loader, and garbage truck. He would love an ***excavator***, an ***ambulance***, a ***bulldozer*** and/or a ***grader***.
 
 A sandbox (with lid) would go really well with these types of toys.
 
